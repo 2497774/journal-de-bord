@@ -13,46 +13,46 @@ Il reste de l'espace sur l'image simplement parce que je trouve que sinon l'imag
 
 # Source: 
 
-Leopard : <img width="375" height="270" alt="leopard" src="https://github.com/user-attachments/assets/a18d3679-0a6f-48b4-ae14-b76570d8c23a" />
+Leopard : https://www.bing.com/images/search?view=detailV2&ccid=uLUBNfzQ&id=41A119096C086DC7DEF4C3FE9E136BF919FB87C2&thid=OIP.uLUBNfzQaqVjiUQJL2lwgwHaHa&mediaurl=https%3a%2f%2fas1.ftcdn.net%2fv2%2fjpg%2f01%2f94%2f30%2f80%2f1000_F_194308077_t8jfNukUIzFx3obrY5Ay8Z6sSjgd3qrm.jpg&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.b8b50135fcd06aa5638944092f697083%3frik%3dwof7GflrE57%252bww%26pid%3dImgRaw%26r%3d0&exph=1000&expw=1000&q=leopard+fur+image&FORM=IRPRST&ck=9103CC1A58B82EB7CEDE1F4A25C4BBF8&selectedIndex=0&itb=0&ajaxhist=0&ajaxserp=0
 
-Talon haut: <img width="726" height="1087" alt="heels" src="https://github.com/user-attachments/assets/372d7d8c-25be-4636-b261-6ce39dd89c0c" />
+Talon haut: https://ca.pinterest.com/pin/2322237303479910/
 
-Toutes les images des filles: <img width="736" height="1104" alt="gurls 5" src="https://github.com/user-attachments/assets/a0d13e85-0f73-41ca-98e8-79ce49cb3ee5" />
-<img width="736" height="1104" alt="gurls6" src="https://github.com/user-attachments/assets/3766b66a-bd66-4fd6-9280-c699366c6ea4" />
-<img width="589" height="937" alt="gurls7" src="https://github.com/user-attachments/assets/d8eaf354-903d-4e65-ad2f-9a891b197362" />
-<img width="749" height="934" alt="girls 4" src="https://github.com/user-attachments/assets/4ca3b5bd-6b96-444e-94bb-542e6b1884c7" />
-<img width="500" height="884" alt="summer girls 1" src="https://github.com/user-attachments/assets/ff39825b-208d-4e13-8b44-a0f3bc72188e" />
-<img width="500" height="884" alt="summer girls 1" src="https://github.com/user-attachments/assets/993dc71b-e422-4601-bdd9-2dd23f7a4048" />
-<img width="1152" height="2048" alt="summer girl2" src="https://github.com/user-attachments/assets/a66b0fd4-a376-44a9-832a-ce90252c4f4b" />
-<img width="736" height="1165" alt="summer girls3" src="https://github.com/user-attachments/assets/b776e86a-ddf8-4a10-9284-c72d931e7ceb" />
-<img width="749" height="934" alt="girls 4" src="https://github.com/user-attachments/assets/6eb3f189-9cbc-46ee-9d82-7efd347ecad5" />
-<img width="735" height="906" alt="girs" src="https://github.com/user-attachments/assets/1da6079f-1b49-46a5-8b81-08d6d908b7d5" />
+Toutes les images des filles:https://ca.pinterest.com/pin/786441153727963724/
+https://ca.pinterest.com/pin/786441153727963669/
+https://ca.pinterest.com/pin/786441153727963628/
+https://ca.pinterest.com/pin/786441153727963604/
+https://ca.pinterest.com/pin/786441153727963573/
+https://ca.pinterest.com/pin/786441153727963436/
+https://ca.pinterest.com/pin/786441153727963384/
+https://ca.pinterest.com/pin/786441153727963371/
 
-New York City: <img width="1152" height="2048" alt="NYC" src="https://github.com/user-attachments/assets/6034dac9-6f95-40b5-9849-3772adf41b8a" />
+New York City: https://ca.pinterest.com/pin/914301161873671898/
 
 Tape coloré:
-<img width="480" height="480" alt="tape pd" src="https://github.com/user-attachments/assets/6e473489-680a-4f8c-86cf-4a5e898bcc53" />
+https://www.bing.com/images/search?view=detailV2&ccid=xNY7g2Mu&id=010B5CE449D3890FAEDB6D83635E826B6809DBB5&thid=OIP.xNY7g2MuSTEunKBXBs6tSAHaHa&mediaurl=https%3A%2F%2Fimg.freepik.com%2Ffree-vector%2Fcute-washi-tape-sticker-pink-collage-element-vector-set_53876-156305.jpg%3Fsemt%3Dais_hybrid%26w%3D740%26q%3D80&cdnurl=https%3A%2F%2Fth.bing.com%2Fth%2Fid%2FR.c4d63b83632e49312e9ca05706cead48%3Frik%3DtdsJaGuCXmODbQ%26pid%3DImgRaw%26r%3D0&exph=740&expw=740&q=tape+color%c3%a9+polka+dots&form=IRPRST&ck=154D0BCD4F3AE170E313ECEF7214F2AD&selectedindex=19&itb=0&ajaxhist=0&ajaxserp=0&pivotparams=insightsToken%3Dccid_sCuoDEhE*cp_46DFB4D39D1F08F0953E138D127080C5*mid_25C337CB0EA3CD57510853A23B63A3FA8E6EAFB7*thid_OIP.sCuoDEhE0!_pbPCbMmT9GHwHaHa&vt=0&sim=11&iss=VSI&ajaxhist=0&ajaxserp=0
 
-Vogue et léopard<img width="1152" height="2048" alt="vogue" src="https://github.com/user-attachments/assets/086fe4da-5285-4bab-a5ac-345878af8bc8" />
+https://www.bing.com/images/search?view=detailV2&ccid=lyg27DuH&id=2A3CDF0AD68CB700E2D36C5E98ED59F6B14359F3&thid=OIP.lyg27DuHTilL0tZhFxi2ugAAAA&mediaurl=https%3A%2F%2Fwww.digitalscrapbook.com%2Fsites%2Fdefault%2Ffiles%2Fstyles%2F456_scale%2Fpublic%2Fs3fs-user-content%2Fasset-image%2Fuser-2%2Fnode-33740%2Fegypt-polka-dots-washi-tape-asset-embellishment-tan-black.png&cdnurl=https%3A%2F%2Fth.bing.com%2Fth%2Fid%2FR.972836ec3b874e294bd2d6611718b6ba%3Frik%3D81lDsfZZ7ZhebA%26pid%3DImgRaw%26r%3D0&exph=456&expw=456&q=tape+color%c3%a9+polka+dots&form=IRPRST&ck=875805334DD1D95CAA939D93941BA063&selectedindex=4&itb=0&ajaxhist=0&ajaxserp=0&pivotparams=insightsToken%3Dccid_hunIOr2E*cp_1615F9EEF1521DCF37207B7ED6C018E9*mid_E77896D647737B99F149A3D5760D5B88EE7518D1*thid_OIP.hunIOr2EDE1!_edxo!_Tgg7AAAAA&vt=0&sim=11&iss=VSI&ajaxhist=0&ajaxserp=0
 
-Disque: <img width="1180" height="2097" alt="disque" src="https://github.com/user-attachments/assets/f9e46dd9-fd96-420b-b03a-6b887f4879f5" />
+Vogue et léopard: https://ca.pinterest.com/pin/157344580727580724/
 
-Disco:<img width="1200" height="1200" alt="disco" src="https://github.com/user-attachments/assets/51882efc-301f-4151-bb8e-9adb876ebc88" />
+Disque: https://ca.pinterest.com/pin/57350595236360175/
 
-Étoile: <img width="1152" height="2048" alt="étoile" src="https://github.com/user-attachments/assets/4f6386e7-8dc6-4997-8cfd-78b85a4afdc1" />
+Disco:https://ca.pinterest.com/pin/256916353739022356/
+
+Étoile: https://ca.pinterest.com/pin/786441153727964269/
 
 Dentelle: [dentelle.htm](https://github.com/user-attachments/files/32297121/dentelle.htm)
 
-Bouche :<img width="1152" height="2048" alt="bouche" src="https://github.com/user-attachments/assets/c956f8ce-46d9-46d9-aaf2-1d4e0bc39492" />
+Bouche :https://ca.pinterest.com/pin/9710955444095523/
 
-Bisous: <img width="455" height="900" alt="bisous" src="https://github.com/user-attachments/assets/a3d76e97-631a-4815-b021-3f2de652158d" />
+Bisous: https://ca.pinterest.com/pin/1146588386416922934/
 
-Brillants : <img width="626" height="980" alt="bd" src="https://github.com/user-attachments/assets/efd6a8bf-972f-4633-ba9f-26d346c20041" />
+Brillants : https://ca.pinterest.com/pin/1055599907969969/
 
-balle de pool:<img width="494" height="500" alt="pool" src="https://github.com/user-attachments/assets/f447b61c-24b3-41a8-aacd-94947105053c" />
+balle de pool:https://ca.pinterest.com/pin/583497695519168404/
 
-piste de course:<img width="1152" height="2048" alt="race" src="https://github.com/user-attachments/assets/83add2ec-873d-42d9-b160-a8371b2dc506" />
+piste de course: https://ca.pinterest.com/pin/6614730699789381/
 
-papier noir; <img width="1920" height="1338" alt="texture-black-color-torn-paper-bundle-vector" src="https://github.com/user-attachments/assets/6efd668b-a9b8-4fa6-8e29-5614cb62998b" />
+papier noir; https://www.bing.com/images/search?view=detailV2&ccid=7SA2k5oc&id=A0F33E68F73E6893B495B866CEF1721683CCF653&thid=OIP.7SA2k5ocMo3dviv7qnCraQHaFK&mediaurl=https%3a%2f%2fstatic.vecteezy.com%2fsystem%2fresources%2fpreviews%2f014%2f976%2f910%2foriginal%2ftexture-black-color-torn-paper-bundle-vector.jpg&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.ed2036939a1c328dddbe2bfbaa70ab69%3frik%3dU%252fbMgxZy8c5muA%26pid%3dImgRaw%26r%3d0&exph=1338&expw=1920&q=Torn+Black+Paper+Art+Work&FORM=IRPRST&ck=7FD4EA4A48C3B6F69CC3DA73E77E3144&selectedIndex=3&itb=0&ajaxhist=0&ajaxserp=0
 
-Océan: <img width="658" height="493" alt="water" src="https://github.com/user-attachments/assets/09763f44-cf8d-4f1f-b279-41e4b1838057" />
+Océan: https://www.bing.com/images/search?view=detailV2&ccid=Nl9A%2bM6u&id=133B0C9643C68B2B93B3BE420FCF8A02A12F4203&thid=OIP.Nl9A-M6uV_LkMQ24zBdmIgHaFj&mediaurl=https%3a%2f%2fgd-hbimg.huaban.com%2f80c9442abb414c87050b68763feea9d006dcdfb9108c1a-11f3xU_fw658&cdnurl=https%3a%2f%2fth.bing.com%2fth%2fid%2fR.365f40f8ceae57f2e4310db8cc176622%3frik%3dA0IvoQKKzw9Cvg%26pid%3dImgRaw%26r%3d0&exph=493&expw=658&q=Paysage+De+Plage+Avec+Vagues+Et+Sable&FORM=IRPRST&ck=5109E02990E7C87D85DECAC530CF7FAE&selectedIndex=0&itb=0&cw=2537&ch=1308&idpp=overlayview&ajaxhist=0&ajaxserp=0
