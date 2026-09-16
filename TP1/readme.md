@@ -1,6 +1,6 @@
 # Collage d'image
 
-![](<img width="4000" height="3000" alt="Cours 3- Intégration multimédia" src="https://github.com/user-attachments/assets/597c06fa-925f-4fa6-a989-640c3040293b" />)
+![<img width="4000" height="3000" alt="Cours 3- Intégration multimédia" src="https://github.com/user-attachments/assets/597c06fa-925f-4fa6-a989-640c3040293b" />](<img width="4000" height="3000" alt="Cours 3- Intégration multimédia" src="https://github.com/user-attachments/assets/597c06fa-925f-4fa6-a989-640c3040293b" />)
 
 Pour mon image j'ai décider de créer un collage de plein d'image différente, J'ai commencer avec un fond complétement blanc puis j'ai rajouter des images a fur et a mesure pour créer un collage d'image tendances.
 Après avoir sélectionner mes images je l'ai ai découper en utilisant les outils de sélections et de découpages pour enlevé les images ou fond que je ne voulais pas avoir sûr mon image.
